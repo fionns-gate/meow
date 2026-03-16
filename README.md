@@ -1,1 +1,1 @@
-# https://adriansblinkiecollection.neocities.org/e105.gif
+![bluegif](https://adriansblinkiecollection.neocities.org/e105.gif)
